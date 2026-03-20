@@ -1,0 +1,2 @@
+# sopaipas-chile-clan
+Control
